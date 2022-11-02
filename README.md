@@ -1,3 +1,1 @@
-### Hi there 👋
-
-I am reinvented. Got to get my website off the wayback machine lol.
+### slaying my way through coding and music one day at a time
